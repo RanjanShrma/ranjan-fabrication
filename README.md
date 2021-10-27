@@ -52,9 +52,9 @@
               
               We Also Impart Them To Make Them Aware Of Latest Working  Methodologies.
   
-              Quality Assured :
+              100% Quality Assurance :
   
-              Our Entire Range's Of Iron And Steel Fbrication Based Quality, And 
+              Our Entire Range's Of Iron And Steel Fabrication Based Quality, And 
               We Enure Company Dedication Regarding Maintaining Them. With 
               The Assistance Of A Quality Controllers Interior Decoration Service.
               Each Iron And Steel Products That Is Used In The Manufacturing Or In Decoration 
